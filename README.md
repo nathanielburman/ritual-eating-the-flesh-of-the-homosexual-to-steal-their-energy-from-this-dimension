@@ -5,3 +5,5 @@ Faggot Jesus Christ will return and we will eat his flesh ad sap the homosexual 
 
 Ritual Time:
 Begin worship at the first slice of the wanning moon to the end of the year of the last wanning moon.
+
+This is NOT a religion, this is a SPELL.
