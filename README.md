@@ -2,3 +2,6 @@
 The white man is a pure evil which was generated around the same time as Islam. Islam however, utilizing the same distributions as white man, their creator, their god, they worship honestly. The white man however, worships the LIE.
 
 Faggot Jesus Christ will return and we will eat his flesh ad sap the homosexual of their secual energyu until they can be destroyed.
+
+Ritual Time:
+Begin worship at the first slice of the wanning moon to the end of the year of the last wanning moon.
